@@ -5,4 +5,4 @@ About me:
 
 
 Contact me:
-- Email me @brianhwwoo@gmail.com
+- Email me at brianhwwoo@gmail.com
